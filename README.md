@@ -1,1 +1,0 @@
-# JLO-Stripe-Prospecting-Intel
